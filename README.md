@@ -1,1 +1,1 @@
-## Web3 learnig journey
+## Web3 learning journey
